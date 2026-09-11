@@ -1,0 +1,2 @@
+privetik
+ya kot
